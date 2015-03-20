@@ -1,4 +1,4 @@
 KnownIssue
 ==========
 
-1. webqq无法正确的处理\t.手机QQ测试可以.
+1. webqqf f3f-#g!.ge$g\t.f	f:QQf5h/e/d;%.
